@@ -5,4 +5,4 @@ This is just a temporary repo.
 
 ### Have a nice time!
 
-Tea just the word is relaxing...Agree?
+Tea, just the word is relaxing...Agree?
